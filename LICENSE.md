@@ -1,4 +1,4 @@
-# 
+# Enhance CapCut for macOS with automatic CapCut for macOS Tool | keyframe-animation + color-correction, the #1 tool. Includes keyframe-animation and color-correction for a smoother
 
 
 
